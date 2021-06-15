@@ -1,4 +1,8 @@
-### Hi there ,I'm Rita👋
+### Hi there 👋, I'm Rita!
+
+<a href="https://www.linkedin.com/in/rita-bindal-739b4a172/">
+ 
+</a>
 
 <!--
 **Rita63/Rita63** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
