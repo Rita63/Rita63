@@ -1,4 +1,4 @@
-### Hi there 👋, I'm Rita!
+
 
 <a href="https://www.linkedin.com/in/rita-bindal-739b4a172/">
  
